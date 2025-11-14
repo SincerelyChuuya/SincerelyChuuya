@@ -10,7 +10,7 @@
 
 <p align="center">˚ʚ₊˚⊹ᰔ⊹˚₊ɞ˚</p><br/>
 
-<p align="center">⋆｡°·☁︎ DNI: any bottom chuuya. I block my dnis freely. Don't even joke about it. <br/>It makes me HIGHLY uncomfortable because he's my main kin, so I take it personally.<br/>That's just my friendly boundaries; otherwise, interact</p><br/>
+<p align="center">⋆｡°·☁︎ DNI: any bottom chuuya. I block my dnis freely. Don't even joke about it. <br/>It makes me pretty damn uncomfortable and I will take it personally.<br/>That's just my friendly boundaries; otherwise, interact</p><br/>
 
 <p align="center">˚ʚ♡ɞ˚</p><br/>
 
